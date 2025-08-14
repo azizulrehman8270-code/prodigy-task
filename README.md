@@ -36,6 +36,6 @@ Thank you for reviewing my submission!
 
 For any inquiries or feedback regarding this project, please contact:
 
-- <a>[azizulrehman](https://www.linkedin.com/in/Azizul Rehman/)(LinkedIn)</a>
+- <a>[azizulrehman](https://www.linkedin.com/in/AzizulRehman/)(LinkedIn)</a>
 - Email: azizulrehman8270@gmail.com
 
